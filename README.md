@@ -1,0 +1,2 @@
+# bot
+Kamu nanyak
